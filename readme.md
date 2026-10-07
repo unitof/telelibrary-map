@@ -9,3 +9,9 @@ For now, I am simply consolidating notes scattered across wherever I've been kee
 ## December 31, 2024 at 7:13pm, Apple Notes
 
 Museum of Confusion endowment investment password: `panoply`
+
+## Telelibrary Conspiracy Discord
+
+There is a Discord for coordinated operations. User #437 (the keeper of this repository) is a member, but not involved in its administration.
+
+Temporary invite link: https://discord.gg/Rf2yPCS5xH (allows you to look around but you’ll be kicked when you disconnect). DM [@unitof](https://discord.com/users/489491627602214922) if you would like a permanent membership.
